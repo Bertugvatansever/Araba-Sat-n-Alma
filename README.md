@@ -1,1 +1,1 @@
-# Araba-Sat-n-Alma
+# Araba-Satin-Alma
